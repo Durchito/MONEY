@@ -1,2 +1,0 @@
-# MONEY
-Mis primeros dolarucos
